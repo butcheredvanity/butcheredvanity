@@ -5,5 +5,6 @@
 # $\color{red}{\textbf{ᑲᥙ𝗍ᥴһᥱrᥱძ᥎ᥲᥒі𝗍ᥡ}}$
  
 <p/>
-I think I'm going CRAZY for how Yi Xi's voice is so goated
-she's my goat y'all we can share 😉
+і 𝗍һіᥒk і'm g᥆іᥒg ᥴrᥲzᥡ 𝖿᥆r һ᥆ᥕ ᥡі ᥊і's ᥎᥆іᥴᥱ іs s᥆ ⍴ᥱᥲk
+sһᥱ's mᥡ g᥆ᥲ𝗍 ᥡ'ᥲᥣᥣ ᥕᥱ ᥴᥲᥒ sһᥲrᥱ 😉
+
